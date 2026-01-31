@@ -1,1 +1,0 @@
-# CH-Training-JMIETI
